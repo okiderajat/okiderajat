@@ -1,1 +1,1 @@
-okiderajat
+hallo saya okiderajat
